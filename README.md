@@ -8,4 +8,4 @@
 
 ### Конатакты: 
 Telegramm: @litvit555\
-email: litvit555@gmail.com\
+email: litvit555@gmail.com
